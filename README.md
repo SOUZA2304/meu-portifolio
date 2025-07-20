@@ -1,1 +1,3 @@
-# meu-portifolio
+Profissional dedicado e proativo, com base em administração e gestão de RH, em transição para o Marketing Digital. Meus cursos em andamento de Excel Avançado, Power BI e Telemarketing fortalecem minha capacidade analítica e de comunicação, essenciais para o desenvolvimento e otimização de estratégias digitais eficazes e baseadas em dados.
+
+Minha experiência em Canva e Photoshop me capacita a criar conteúdo visual atraente para campanhas de marketing digital e mídias sociais. Com experiência diversificada e um olhar apurado para a comunicação visual, estou pronto(a) para agregar valor na criação e execução de estratégias que impulsionem a presença online e o engajamento da marca.
